@@ -1,0 +1,2 @@
+# new-app-on-Jetpack-that-posts-videos-on-blockchain-video-networks
+And how about you guys coming up with an added app on Jetpack that posts  videos in different video social networks especially the new up and  coming https://www.bitchute.com,  https://www.brighteon.com,  https://socialx.network/,  https://www.investinblockchain.com/what-is-sapien/,  https://www.investinblockchain.com/blockchain-projects-web-evolution/,  https://d.tube/, http://startupradar.asia/beat-your-heart-with-foresting/ and more 
